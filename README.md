@@ -1,1 +1,1 @@
-# Jurnal-03-praktikum-Nicholas-Octavianus-Hardi
+# 6706200108-Nicholas Octavianus Hardi
